@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Evilshinji87
-- 👀 I’m interested 
+- 👀 I’m interested. Yes ahhaha.
 - 🌱 I’m currently C#, Php; ASP.net; Go.
 - 💞️ I’m looking to collaborate on little projekts, wanna collect experience
 - 📫 How to reach me ...
